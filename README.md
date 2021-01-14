@@ -10,6 +10,7 @@
 ------------------------------------------------------------------------------------
 
  discord : https://discord.gg/MYb6TcHmq9
+ video : https://streamable.com/vp9vvr
 
 English
 
